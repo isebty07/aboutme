@@ -1,6 +1,6 @@
 # About me
 
-## 3 things I love
+## 3 things I like
 1. Arctic foxes
 2. The moon
 3. Gemstones
